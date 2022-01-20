@@ -1,2 +1,2 @@
 # dls-22-mod-apk
-hello guys i need a employer.. http://getmewp.com/dream-league-soccer-2022-mod-apk
+download dls 22 mod apk from here. http://getmewp.com/dream-league-soccer-2022-mod-apk
